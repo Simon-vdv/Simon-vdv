@@ -1,4 +1,4 @@
-### Hi there 👋
+### I have a beautiful cat called Leo 🐈
 
 <!--
 **Simon-vdv/Simon-vdv** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
